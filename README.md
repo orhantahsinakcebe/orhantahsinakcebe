@@ -3,7 +3,7 @@
 
 Hi
 
-I'm from Turkiye.
+I'm from Türkiye.
 
 I interested computer since 1993.
 
